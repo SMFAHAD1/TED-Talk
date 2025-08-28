@@ -1,3 +1,4 @@
+The TED World
 
 Founded in 1984 as a nonprofit initiative, the TED Conference began as a platform to connect visionaries from Technology, Entertainment, and Design. Over time, it has evolved into a global phenomenon, embracing diverse disciplines and becoming a catalyst for transformative ideas. By 2015, TED and its independently organized TEDx events had shared over 2,000 talks, featuring trailblazers in science, business, innovation, and social change.
 
